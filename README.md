@@ -6,6 +6,6 @@
 ⠀ ⠀⠀ ⠀ 
 ⠀ ⠀ ⠀⠀ [𝘳𝘦𝘯𝘵𝘳𝘺]()   ⠀ ⠀⠀ ⠀       [𝘮𝘢𝘵𝘤𝘩](https://rentry.co/ardaminas)     ⠀⠀ ⠀    
 ⠀⠀ ⠀     ⠀
- ⠀⠀ ⠀     ⠀⠀ ⠀     ⠀⠀ ⠀     ⠀⠀ ⠀     ⠀⠀ ⠀     ⠀⠀ ⠀     ⠀⠀ ⠀     ⠀⠀ ⠀     ⠀⠀ ⠀     ⠀⠀ ⠀    ⠀ ⠀      [𝘢𝘵𝘢𝘣𝘰𝘰𝘬](https://spokekacipever.atabook.org)
+ ⠀⠀ ⠀     ⠀⠀ ⠀     ⠀⠀ ⠀     ⠀⠀ ⠀     ⠀⠀ ⠀     ⠀⠀ ⠀     ⠀⠀ ⠀     ⠀⠀ ⠀     ⠀ ⠀    ⠀ ⠀      [𝘢𝘵𝘢𝘣𝘰𝘰𝘬](https://spokekacipever.atabook.org)
 ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  
 
